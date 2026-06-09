@@ -2,7 +2,7 @@ Elisabeth Luo
 Junior Front-End Developer 
 Email : elisabethluo@gmail.com
 linkedin.com: 
-Tel: +1-(404)432-8638 
+Tel: +1-(404)432-8638                     
 
 
 SUMMARY: 
